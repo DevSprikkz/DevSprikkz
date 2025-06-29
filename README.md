@@ -1,1 +1,1 @@
-# 👋 Olá, eu sou DevSprikkz!
+# 👋 Olá, eu sou Sprikkz!
