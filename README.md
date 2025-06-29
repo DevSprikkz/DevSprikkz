@@ -1,1 +1,1 @@
-# 👋 Olá, eu sou Sprikkz!
+# Olá
